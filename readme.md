@@ -1,0 +1,1 @@
+Escribir pautas a seguir    
